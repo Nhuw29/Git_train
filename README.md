@@ -1,1 +1,1 @@
-Hi! I'M Nhu, almost 19 years old. I'm a student at PNV
+Hi! I'm a student at PNV
